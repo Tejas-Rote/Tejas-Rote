@@ -10,7 +10,7 @@
 
 - 📫 How to reach me **tejas292002@gmail.com**
 
-- 📄 Know about my experiences [https://drive.google.com/file/d/1yb2kzydRI-t7gzsg1ui6wIQnwb2tgnG5/view?usp=share_link](https://drive.google.com/file/d/1yb2kzydRI-t7gzsg1ui6wIQnwb2tgnG5/view?usp=share_link)
+- 📄 Know about my experiences [https://drive.google.com/file/d/1ocaZK2CTB2xL_HPhd9f6LqhyejDIMF_e/view?usp=share_link](https://drive.google.com/file/d/1yb2kzydRI-t7gzsg1ui6wIQnwb2tgnG5/view?usp=share_link)
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
